@@ -11,4 +11,4 @@ Ahmed Tarek: Copywriter
 Shenouda John: Content Creator
 
 Lecturer Name: Tamer El-Moghazy
-Google Drive Link: https://drive.google.com/drive/folders/1YTcYmlJIAlbA6SoXbq8vjZtdG-5WtUog?usp=drive_link
+Google Drive Link: https://drive.google.com/drive/folders/1svJP7U1Mz1Kqm3Q_iP8RJSymXaMX50nS?usp=drive_link

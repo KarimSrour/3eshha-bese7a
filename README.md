@@ -1,7 +1,11 @@
 # 3eshha-bese7a
 We, 3eshha bese7a, aim to provide content about health for audience 45+ year olds. We aim to increase audience's awareness of our brand, and achieve engagement on the page of the brand
 Team Members
-Belal Al-Baklawi - Karim Srour, - Khaled Aboelhawa, - Ahmed Tarek, - Shenouda John
+- Belal Al-Baklawi
+- Karim Srour
+- Khaled Aboelhawa
+- Ahmed Tarek
+- Shenouda John
 
 Team Responsibilites:
 Belal Al-Baklawi: Graphic Designer

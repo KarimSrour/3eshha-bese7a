@@ -12,3 +12,6 @@ Shenouda John: Content Creator
 
 Lecturer Name: Tamer El-Moghazy
 Google Drive Link: https://drive.google.com/drive/folders/1svJP7U1Mz1Kqm3Q_iP8RJSymXaMX50nS?usp=drive_link
+
+
+Graduation Project's Presentation: https://canva.link/0hquvjwbdcuuq5n

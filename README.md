@@ -1,5 +1,6 @@
 # 3eshha-bese7a
-We, 3eshha bese7a, aim to provide content about health for audience 45+ year olds. We aim to increase audience's awareness of our brand, and achieve engagement on the page of the brand. - 
+We, 3eshha bese7a, aim to provide content about health for audience 45+ year olds. We aim to increase audience's awareness of our brand, and achieve engagement on the page of the brand.
+
 Team Members
 - Belal Al-Baklawi
 - Karim Srour
@@ -19,3 +20,4 @@ Google Drive Link: https://drive.google.com/drive/folders/1svJP7U1Mz1Kqm3Q_iP8RJ
 
 
 ### Graduation Project Social Accounts
+Facebook Page: https://www.facebook.com/3eshhaBese7aeg/
